@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @69kriya69
+- 👋 Hi, I’m Kriya!
 - 👀 I’m interested in art/2d animation/coding
 - 🌱 I’m currently learning coding
   
-- 📫 How to reach me through mail
+- 📫 reach me through mail
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have good heart but this mouth...
 
